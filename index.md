@@ -17,7 +17,7 @@ Abbiamo subito pensato di dedicarci dei giorni per raccogliere qualche idea, ma 
 
 ![](/img/mb.jpg)
 
-Dopo quattro anni, siamo arrivati ad amarci tanto da sposarci: abbiamo riconosciuto la nostra vocazione nuziale e imparato a riconoscere il nostro specifico progetto di vita, dar vita insieme, un dono che desideriamo chiedere e ricevere dalle mani di Dio. È cresciuto in noi il desiderio di condividere la quotidianità e di avere un unione per sempre: molto spesso quando stiamo insieme, anche nel fare qualcosa di semplice come passeggiare o condividere un pasto, sentiamo questi attimi come eterni, che hanno un qualcosa di speciale e vorremmo che questa eternità che percepiamo, fosse un ‘per sempre’ più grande. Vorremmo che Dio fosse al centro della nostra coppia e che rendesse il nostro ‘sì’ eterno e ci piacerebbe che anche il nostro amore e il nostro impegno lo fossero. 
+Dopo quattro anni, siamo arrivati ad amarci tanto da sposarci: abbiamo riconosciuto la nostra vocazione nuziale e imparato a riconoscere il nostro specifico progetto di vita, dar vita insieme, un dono che desideriamo chiedere e ricevere dalle mani di Dio. È cresciuto in noi il desiderio di condividere la quotidianità e di avere un unione per sempre: molto spesso quando stiamo insieme, anche nel fare qualcosa di semplice come passeggiare o condividere un pasto, sentiamo questi attimi come eterni e vorremmo che questa eternità che percepiamo, fosse un ‘per sempre’ più grande. Vorremmo che Dio fosse al centro della nostra coppia e che rendesse il nostro ‘sì’ eterno e ci piacerebbe che anche il nostro amore e il nostro impegno lo fossero. 
 
 Desiderare e vivere un amore eterno è quanto Dio rappresenta e vuol donare. Insomma, vorremmo puntare in alto, osare, perché ci sentiamo di poter chiedere la capacità di amare l’altro/a con il cuore e la forza stessa di Dio, la capacità di amare ‘da Dio’. Questo sarà il vero regalo che ci scambieremo nelle nozze!! Il Sacramento che andremo a ricevere sarà segno efficace della grazia di Dio, segno vivente del suo amore. Vorremmo annunciare questo amore il più possibile e farlo uscire da quella che sarà la nostra casa. Siamo quindi consapevoli della missione cui siamo chiamati a impegnarci e del dono che riceviamo e per questo motivo abbiamo pensato di voler condividere il più possibile con la comunità questo desiderio e questa scelta. Abbiamo ragionato su come potevamo organizzare al meglio la cerimonia (che sarà la vera Festa) e il continuo di questa grande Festa perché potessimo concentrarci sull’essenziale e perché potessimo condividere questo con ognuno di voi! 
 
@@ -41,7 +41,7 @@ Innanzitutto ci presentiamo ...
 <img class="float img-rounded" src="/img/lei-round.jpg">
 
 
-**Benedetta**, 30 anni, figlia di Peppe e Claudia è estroversa, con una grande parlantina e con una gran voglia di ascoltare storie e conoscere persone... Marco dice che è come essere in compagnia di una radio con lei, che canta, parla… di sicuro gli fa molta compagnia!! Anche lei è appassionata di tante cose perché è molto curiosa, ma soprattutto ciò che la contraddistingue è lo spirito organizzativo e il coordinare… e fa anche un po’ da segretaria a Marco, ricordandogli date, appuntamenti e orari! Ama tanto il canto e il ballo, passioni che condivide con il suo futuro sposo, è appassionata di lettura fin da quando è piccola, e si diverte a correggere libri. Adora capire l’etimologia delle parole, leggere  le storie dei santi e giocare al gioco dei nomi di persona; è anche una brava fotografa ‘seriale’ (lo testimoniano milioni di foto scattate nelle gite con Marco o con gli amici). Le piacciono talmente tanto le storie familiari che ha pensato di diventare una mediatrice familiare; ama l’educazione dei ragazzi, un servizio che ha scelto di fare da un po’ di anni nell’associazione Agesci. Servire il prossimo è di sicuro un valore che condivide con Marco!
+**Benedetta**, 30 anni, figlia di Peppe e Claudia è estroversa, con una grande parlantina e con una gran voglia di ascoltare storie e conoscere persone... Marco dice che è come essere in compagnia di una radio con lei, che canta, parla… di sicuro gli fa molta compagnia!! Anche lei è appassionata di tante cose perché è molto curiosa, ma soprattutto ciò che la contraddistingue è lo spirito organizzativo e il coordinare… e fa anche un po’ da segretaria a Marco, ricordandogli date, appuntamenti e orari! Ama tanto il canto e il ballo, passioni che condivide con il suo futuro sposo, è appassionata di lettura fin da quando è piccola, e si diverte a correggere libri. Adora capire l’etimologia delle parole, leggere  le storie dei santi e giocare al gioco dei nomi di persona; è anche una brava fotografa ‘seriale’ (lo testimoniano milioni di foto scattate nelle gite con Marco o con gli amici). Le piacciono talmente tanto le storie familiari che ha pensato di diventare una mediatrice familiare; ama l’educazione dei ragazzi, un servizio che ha scelto di fare da un po’ di anni nell’[associazione Agesci](http://agesci.org/home.php). Servire il prossimo è di sicuro un valore che condivide con Marco!
 
 ### I nostri testimoni
 
@@ -59,7 +59,7 @@ La cerimonia sarà celebrata nella Chiesa di Sacro Cuore di Soria, parrocchia ch
 
 ### E poi ... dove continueremo a festeggiare??
 
-
+![](/img/mappa.png)
 
 Abbiamo scelto di festeggiare in un agriturismo, la Grotta (località Caminate). Questo agriturismo ci è piaciuto particolarmente perché è un’azienda agricola che produce tutto ciò che cucina, producendo persino i vini. Ci hanno colpito soprattutto  l’accoglienza, la serietà e la gentilezza di chi lavora. Vi è anche una piccola grotta che costituì il rifugio di San Paterniano (patrono di Fano) durante le persecuzioni contro i cristiani e che ora è meta di pellegrinaggio. 
 
@@ -73,9 +73,14 @@ Diteci in quanti siete e per quante notti sarete a Pesaro… e sarete ospitati a
 ![](/img/mb2.jpg)
 
 
-Per il regalo chiediamo agli amici, che ci hanno tanto sostenuto e aiutato, di mettere ciò che si sentono e che credono per regalarci ciascuno un piccolo pezzetto di viaggio di nozze.
+Per il regalo chiediamo agli amici, che ci hanno tanto sostenuto e aiutato, di mettere ciò che si sentono e che credono per regalarci ciascuno un piccolo pezzetto di viaggio di nozze (il giorno del matrimonio porteremo un salvadanaio dedicato al viaggio di nozze).
 
-Per i nostri parenti, amici di famiglia o altri invitati, abbiamo fatto la lista nozze (che inseriremo anche online) che ci permetterà di arredare la nostra casa con tutto ciò che potrà servirci nella vita di tutti i giorni.
+Per i nostri parenti, amici di famiglia e altri invitati, abbiamo fatto due liste nozze con tutto ciò che ci potrà servire nella nostra nuova casa e nella vita di tutti i giorni. 
+Inseriremo qui le mail dei due negozi, così, anche per chi è fuori Pesaro sarà possibile inviare una mail ai negozi ed essergli spedita online la lista per scegliere il proprio regalo.
+
+Galleria Cappellini: <code>info@galleriacappellini.it</code>
+
+Trony: <code>ufficiopesaro@freeshop.it</code>
 
 Grazie di cuore a tutti voi che ci accompagnate…il regalo più bello sarà la vostra presenza quel giorno…ci vediamo il 6 dicembre!!!
 
