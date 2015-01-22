@@ -1,7 +1,7 @@
 ---
 title: Marco e Benedetta
 layout: page
-img: /img/header.jpg
+img: img/header.jpg
 subheader:
 data: Sabato 6 dicembre 2014, ore 11
 luogo: Chiesa Sacro Cuore di Soria, Pesaro
