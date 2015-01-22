@@ -15,7 +15,7 @@ Abbiamo subito pensato di dedicarci dei giorni per raccogliere qualche idea, ma 
 
 ### Da dove nasce il desiderio di sposarsi e perché proprio in Chiesa?
 
-![](/img/mb.jpg)
+![](img/mb.jpg)
 
 Dopo quattro anni, siamo arrivati ad amarci tanto da sposarci: abbiamo riconosciuto la nostra vocazione nuziale e imparato a riconoscere il nostro specifico progetto di vita, dar vita insieme, un dono che desideriamo chiedere e ricevere dalle mani di Dio. È cresciuto in noi il desiderio di condividere la quotidianità e di avere un'unione per sempre: molto spesso quando stiamo insieme, anche nel fare qualcosa di semplice come passeggiare o condividere un pasto, sentiamo questi attimi come eterni e vorremmo che questa eternità che percepiamo, fosse un ‘per sempre’ più grande. Vorremmo che Dio fosse al centro della nostra coppia e che rendesse il nostro ‘sì’ eterno e ci piacerebbe che anche il nostro amore e il nostro impegno lo fossero. 
 
@@ -32,13 +32,13 @@ Riguardo il fotografo, in maniera provvidenziale abbiamo incontrato, inizialment
 
 Innanzitutto ci presentiamo ...
 
-<img class="float img-rounded" src="/img/lui-round.jpg">
+<img class="float img-rounded" src="img/lui-round.jpg">
 
 
 **Marco**, 24 anni, figlio di Lello e Maura è piuttosto silenzioso e di poche parole, riservato, gli piace ascoltare chi ha di fronte, ma è anche una persona molto scherzosa, tanto che si diverte molto a fare imitazioni e scherzi (soprattutto alla sua promessa sposa!). Ha diverse passioni, quella per le costruzioni che lo ha portato a scegliere di studiare Ingegneria Civile e che spesso lo rende molto più razionale e concreto di Benedetta,  facendola scendere dalle nuvole alla realtà. Il sogno di Marco è costruire case che non avranno bollette… ama il risparmio energetico! È anche un romanticone e una persona sensibile; si diverte molto a giocare coi bambini, inventando sempre nuovi giochi, soprattutto quando fa servizio come clown di corsia. Gli piace strimpellare con la chitarra perché adora i cantautori, per la gioia di Benedetta che canta con lui molto volentieri. Ama gli sport di velocità e precisione, disegnare, e soprattutto viaggiare… sarebbe sempre con la valigia nelle mani, al contrario della sua futura sposa che è molto più casalinga e tranquilla!
 
 
-<img class="float img-rounded" src="/img/lei-round.jpg">
+<img class="float img-rounded" src="img/lei-round.jpg">
 
 
 **Benedetta**, 30 anni, figlia di Peppe e Claudia è estroversa, con una grande parlantina e con una gran voglia di ascoltare storie e conoscere persone... Marco dice che è come essere in compagnia di una radio con lei, che canta, parla… di sicuro gli fa molta compagnia!! Anche lei è appassionata di tante cose perché è molto curiosa, ma soprattutto ciò che la contraddistingue è lo spirito organizzativo e il coordinare… e fa anche un po’ da segretaria a Marco, ricordandogli date, appuntamenti e orari! Ama tanto il canto e il ballo, passioni che condivide con il suo futuro sposo, è appassionata di lettura fin da quando è piccola, tanto che ora legge per lavoro, come correttrice di bozze.  Adora capire l’etimologia delle parole (forse studiare Filologia classica l'ha un po' deviata?!), leggere  le storie dei santi e giocare al gioco dei nomi di persona; è anche una brava fotografa ‘seriale’ (lo testimoniano milioni di foto scattate nelle gite con Marco o con gli amici). Le piacciono talmente tanto le storie familiari che ha pensato di diventare una mediatrice familiare; ama l’educazione dei ragazzi, un servizio che ha scelto di fare da un po’ di anni nell’[associazione Agesci](http://agesci.org/home.php). Servire il prossimo è di sicuro un valore che condivide con Marco!
@@ -59,7 +59,7 @@ La cerimonia sarà celebrata nella Chiesa di Sacro Cuore di Soria, parrocchia ch
 
 ### E poi ... dove continueremo a festeggiare??
 
-![](/img/mappa.png)
+![](img/mappa.png)
 
 Per chi ha ricevuto l'invito al ristorante, abbiamo scelto di festeggiare in un agriturismo, la Grotta (località Caminate). Questo agriturismo ci è piaciuto particolarmente perché è un’azienda agricola che produce tutto ciò che cucina, producendo persino i vini. Ci hanno colpito soprattutto  l’accoglienza, la serietà e la gentilezza di chi lavora. Vi è anche una piccola grotta che costituì il rifugio di San Paterniano (patrono di Fano) durante le persecuzioni contro i cristiani e che ora è meta di pellegrinaggio. 
 
@@ -70,7 +70,7 @@ Diteci in quanti siete e per quante notti sarete a Pesaro… e sarete ospitati a
 
 ### Regali
 
-![](/img/mb2.jpg)
+![](img/mb2.jpg)
 
 
 Per il regalo chiediamo agli amici, che ci hanno tanto sostenuto e aiutato, di mettere ciò che si sentono e che credono per regalarci ciascuno un piccolo pezzetto di viaggio di nozze (il giorno del matrimonio porteremo un salvadanaio dedicato al viaggio di nozze).
